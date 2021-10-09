@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jessicasoha
 - 👀 I’m interested in start my journey in decoding
-- 🌱 I’m currently learning all!
-- 💞️ I’m looking to collaborate on 
+- 🌱 I’m currently learning everything!
+- 💞️ I’m looking to collaborate on... idk
 - 📫 How to reach me: u can't lol
 
 <!---
